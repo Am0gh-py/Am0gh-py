@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning coding in python
 - 📫 How to reach me :
                    Instagram: https://www.instagram.com/am0ghnottaken/
-                   Snapchat: https://www.snapchat.com/add/amoghgamer07
                    Twitter: https://www.twitter.com/AmoghAradhya
+                   Discord : senpai_amogh#5912
          PEACE✌
